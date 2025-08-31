@@ -12,7 +12,7 @@ Karena tidak hadir, saya kemudian bertanya pada teman, “ada tugas ngga di pert
 Dan ternyata memang ada: **mengejar target mengetik minimal 60 WPM**.  
 
 Sejak saat itu, selain karena tuntutan tugas kuliah, saya juga merasa **tertantang** dan semakin termotivasi untuk bisa mencapai target tersebut.  
-Ditambah lagi, saya sadar bahwa kemampuan mengetik cepat dan akurat adalah keterampilan penting untuk kuliah di bidang Informatika — mulai dari menulis kode hingga membuat laporan.
+Ditambah lagi, saya sadar bahwa kemampuan mengetik cepat dan akurat adalah keterampilan penting untuk kuliah di bidang Informatika mulai dari menulis kode hingga membuat laporan di praktikum.
 
 Sejak lama, saya terbiasa mengetik hanya dengan **dua jari telunjuk kiri dan kanan**. Cara ini memang cukup untuk sekadar menulis, namun ketika mulai kuliah di bidang Informatika, saya menyadari keterampilan mengetik cepat dan akurat sangat penting, baik untuk menulis kode, menyusun laporan, maupun aktivitas sehari-hari menggunakan laptop.  
 
