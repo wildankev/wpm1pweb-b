@@ -6,7 +6,7 @@ Tujuan utama saya adalah **mencapai kecepatan di atas 60 WPM** dengan tetap menj
 ---
 
 ## Latar Belakang
-Sejak lama, saya terbiasa mengetik hanya dengan **dua jari telunjuk kiri dan kanan**. Cara ini memang cukup untuk sekadar menulis, namun ketika mulai kuliah di bidang Informatika, saya menyadari keterampilan mengetik cepat dan akurat sangat penting — baik untuk menulis kode, menyusun laporan, maupun aktivitas sehari-hari di komputer.  
+Sejak lama, saya terbiasa mengetik hanya dengan **dua jari telunjuk kiri dan kanan**. Cara ini memang cukup untuk sekadar menulis, namun ketika mulai kuliah di bidang Informatika, saya menyadari keterampilan mengetik cepat dan akurat sangat penting, baik untuk menulis kode, menyusun laporan, maupun aktivitas sehari-hari menggunakan laptop.  
 
 Dengan alasan itu, saya memutuskan untuk melatih diri agar bisa meningkatkan skill mengetik dan mulai beralih ke metode yang lebih efektif.
 
