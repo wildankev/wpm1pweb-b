@@ -6,6 +6,14 @@ Tujuan utama saya adalah **mencapai kecepatan di atas 60 WPM** dengan tetap menj
 ---
 
 ## Latar Belakang
+Awalnya saya tidak mengambil mata kuliah **Pemrograman Web kelas B**. Namun karena suatu hal, saya akhirnya pindah ke kelas ini. Sayangnya, saya tidak mengikuti **pertemuan pertama** pada hari Senin, 25 Agustus 2025.  
+
+Karena tidak hadir, saya kemudian bertanya pada teman, “ada tugas ngga di pertemuan pertama?”  
+Dan ternyata memang ada: **mengejar target mengetik minimal 60 WPM**.  
+
+Sejak saat itu, selain karena tuntutan tugas kuliah, saya juga merasa **tertantang** dan semakin termotivasi untuk bisa mencapai target tersebut.  
+Ditambah lagi, saya sadar bahwa kemampuan mengetik cepat dan akurat adalah keterampilan penting untuk kuliah di bidang Informatika — mulai dari menulis kode hingga membuat laporan.
+
 Sejak lama, saya terbiasa mengetik hanya dengan **dua jari telunjuk kiri dan kanan**. Cara ini memang cukup untuk sekadar menulis, namun ketika mulai kuliah di bidang Informatika, saya menyadari keterampilan mengetik cepat dan akurat sangat penting, baik untuk menulis kode, menyusun laporan, maupun aktivitas sehari-hari menggunakan laptop.  
 
 Dengan alasan itu, saya memutuskan untuk melatih diri agar bisa meningkatkan skill mengetik dan mulai beralih ke metode yang lebih efektif.
